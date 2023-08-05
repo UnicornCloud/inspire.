@@ -1,1 +1,2 @@
 - [$400,000,000 Saved - NO MORE AWS](https://youtu.be/XAbX62m4fhI)
+- [The advertising industry calls us extremists; are you one too?](https://youtu.be/akeRz7ouICQ)
